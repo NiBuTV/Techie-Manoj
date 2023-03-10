@@ -1,1 +1,0 @@
-fuchhka khelam ma er 
